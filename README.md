@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @LaurenRenaeCampbell
+- 👋 Hi, I’m Lauren!
 - 👀 Outside of school, I’m interested in art, rewatching my favorite shows, spending time with loved ones, watching tiktok, and sleeping
 - 🌱 I’m currently learning computer science at Oregon State University 
 - 💞️ I’m looking to collaborate on class projects!
